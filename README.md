@@ -1,1 +1,1 @@
-# GX470-HUD-Upgrats-
+# GX470-HUD-Updates
